@@ -1,0 +1,1 @@
+# moryyamaqwerd.github.io
